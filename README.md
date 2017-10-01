@@ -1,0 +1,1 @@
+SesTanıma-ornek
